@@ -1,1 +1,1 @@
-# Try
+# Nadi-Jyotish-Astro-one
